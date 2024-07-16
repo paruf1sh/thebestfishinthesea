@@ -35,12 +35,12 @@ paru uses she/byte and i use he/him :D
 
 ![tumblr_a407b2a4b389f8ad7621681ed79df005_eb2b9bbd_1280](https://github.com/user-attachments/assets/fa114723-ec2b-4952-a899-eb8abcd95ca9)
 ![tumblr_3c0cec249839f9d8df59fa349a2153a6_1ab5745e_640](https://github.com/user-attachments/assets/76cd0c7a-d094-4d46-a2fa-73ff374ef23f)
-![tumblr_aa20940a693d3270ceeb2667165dd6c1_d7adc01e_400](https://github.com/user-attachments/assets/55a08b37-10e8-480b-950f-29c684b7d5ee)
+!![tumblr_aa20940a693d3270ceeb2667165dd6c1_d7adc01e_400](https://github.com/user-attachments/assets/0ec6806d-151b-4fe8-b1e4-3e078429d275)
 ![tumblr_014595f7dfc0a856918cae186b02fd96_cf6f90be_500](https://github.com/user-attachments/assets/530c4027-cf17-43e6-940a-62827b997487)
 ![tumblr_68bb9e71ec030bfeb579002c6761aa36_9f052121_100](https://github.com/user-attachments/assets/c8c45ca7-ddc3-407c-a642-45d113a3c228)
 ![tumblr_1587444382105fb6774da80145174bb4_5f1f19b3_250](https://github.com/user-attachments/assets/3a2ace86-f7aa-4a78-8f02-7c72976303ec)
-![woagh](https://github.com/user-attachments/assets/969b7d8e-51da-4ef3-97a6-be4b2ef5479e)
 ![tumblr_9f7aa7377efe3125cd1b656005fafed6_4b578370_100](https://github.com/user-attachments/assets/f2df891a-4e84-4150-9a14-dcf78281e22b)
+!![tumblr_3d7a97f3c78cb9fd23b53408bb783d96_8325884a_250](https://github.com/user-attachments/assets/0515fc15-8611-4362-9640-c5ac83e4e7af)
 ![meow](https://github.com/user-attachments/assets/a2519aa2-5780-44a5-a4d8-62b483ea06cf) 
 ![tumblr_70be341d9262f885cbad7259b2d44fdf_25b8a681_250](https://github.com/user-attachments/assets/5a4f8726-40ca-4297-a1e6-64cc81521f10)
 ![tumblr_8e4a59a3bc3aa75c20897869e194d772_46bc1141_250](https://github.com/user-attachments/assets/e91bc6e7-5332-4e52-bd49-1822e87fb8b4)
@@ -51,6 +51,7 @@ paru uses she/byte and i use he/him :D
 ![tumblr_cf14d21baf723fe091090e8c69225f27_6aa05122_250](https://github.com/user-attachments/assets/d7a887e0-14ae-4a6f-af7d-cdd42db42735)
 ![tumblr_fe643ec10b8f2fe9e532120d56ef1bee_d74284b8_250](https://github.com/user-attachments/assets/aba9f252-d59f-4ab1-a2f7-5371541e2053)
 ![tumblr_f4fa447638a592977c9ae2092550a85a_6ae83647_250](https://github.com/user-attachments/assets/601f964c-c7c5-4b39-8779-b010c7688f6d)
+![tumblr_09759965f7cd26bf98b28664f5b1085a_7ff180ae_250](https://github.com/user-attachments/assets/09298ea9-4e3c-40b8-96e3-86693edcb55f)
 ![tumblr_4bc41637642b51d6955b4adf494469a9_004a7a73_250](https://github.com/user-attachments/assets/437d4acf-953a-493d-a292-4ca0343536b0)
 ![tumblr_f5eb77aee6b1463234648f28320251c8_c81bcd68_250](https://github.com/user-attachments/assets/0e1e8281-66d4-495b-ab66-b910a25cd90d)
 ![tumblr_93620cfd93fa41dcc0a4cb2c7af0e76d_81146ee3_250](https://github.com/user-attachments/assets/4fc9f825-7656-4918-8bf6-df02a3e262d2)
@@ -59,6 +60,13 @@ paru uses she/byte and i use he/him :D
 ![tumblr_0678b322e7a67914319ea48836eb4a4c_96a50920_250](https://github.com/user-attachments/assets/e8720f3b-cfbd-4c9c-b0e8-c5ccab7d49fb)
 ![tumblr_7f6d312c420bf8e4f0ed9cb82460734f_a2e5d4f9_250](https://github.com/user-attachments/assets/d73f9376-df7c-43dc-bc37-e4cd1ebd7a2b)
 ![tumblr_4bc41637642b51d6955b4adf494469a9_964cf7c9_250](https://github.com/user-attachments/assets/5d0b0b06-2d7e-4dbe-b1a3-e4b0afa72112)
+![tumblr_d66660118faeee1e71e16c4a7c4626b0_ac73408b_250](https://github.com/user-attachments/assets/40c7e0a4-7b32-4a79-ad90-de00161e4b0e)
+![tumblr_dbd4b2bf905ccfd58d7d3d38093799fb_23f936f8_250](https://github.com/user-attachments/assets/c2281553-af07-4426-bfd5-0484f6ef86d1)
+![tumblr_5856f11d9d19eca0d4d171216a44a24c_46a43296_250](https://github.com/user-attachments/assets/e0843106-c940-4162-b0ec-7f60a196d6db)
+![tumblr_fc1ec7da4d22dfba3888cc17b74533b6_f61a4069_250](https://github.com/user-attachments/assets/f3de59c4-6475-48d9-a91b-48303850acb7)
+![tumblr_91b748f3c8ab0dd49fbfd66e857dc6b8_5d7518de_250](https://github.com/user-attachments/assets/07ee7cf3-c1e6-4e94-9947-f9d81ec9d8ab)
+
+
 
 
 
