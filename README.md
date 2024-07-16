@@ -85,3 +85,5 @@ pls just dont be weird around me haha  ![646339c1f1c7ec90c726318c_07](https://gi
 ![tumblr_1df69c849a85c74bd301c59420a354b4_21c3b474_400](https://github.com/user-attachments/assets/12a3e050-e821-42e4-9731-ac5422e8c052)
 ![tumblr_1df69c849a85c74bd301c59420a354b4_21c3b474_400](https://github.com/user-attachments/assets/12a3e050-e821-42e4-9731-ac5422e8c052)
 
+# MY DISC USERNAME IS PARUF1SH BTW
+
