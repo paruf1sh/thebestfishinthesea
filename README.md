@@ -21,6 +21,8 @@ Hii im charlie!! u can also call me Paru ^^
 
   I'm a dogboy!!! 
   I say stuff like "woof" a lot kinda just as a stim, plz lmk if it weirds u out and i'll stop <33!!
+
+  BTW this isnt like a k1nk thing. im a pet regressor n that stuff is gross. </3
  
   ![tumblr_d4d628d9a2acf5c17a7cdc3ce3319839_de45afb3_250](https://github.com/user-attachments/assets/527092d0-eedd-4966-861f-2486de518910)
   
