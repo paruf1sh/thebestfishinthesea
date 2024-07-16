@@ -1,5 +1,4 @@
-
-![tumblr_0791d227d0fb84c49589375fa687e181_541af7e3_1280](https://github.com/user-attachments/assets/32b8af61-fc3e-4ca2-aeff-182286d66492)
+![tumblr_45ad9af666dbb2e8fae15fa8b2e043f3_d159b90b_1280](https://github.com/user-attachments/assets/57f4e491-52c8-4f85-9a2b-c8a273e45879)
 
 Hey gang!! Welcome to my page!! :D
 Hii im charlie!! u can also call me Paru ^^
