@@ -7,7 +7,7 @@ Hii im charlie!! u can also call me Paru ^^
 
 ![tumblr_dc657886e922c9d29a051c9492e708b0_1f91ed6d_400](https://github.com/user-attachments/assets/a0e1c5fd-ba48-4a00-b072-39a2009466f1)
 ![tumblr_dc657886e922c9d29a051c9492e708b0_1f91ed6d_400](https://github.com/user-attachments/assets/a0e1c5fd-ba48-4a00-b072-39a2009466f1)
-![tumblr_dc657886e922c9d29a051c9492e708b0_1f91ed6d_400](https://github.com/user-attachments/assets/a0e1c5fd-ba48-4a00-b072-39a2009466f1)
+
 
   I'm transmasc and gay :33 plz leave me alone if u have a problem with this
  ![tumblr_fe8fbe8a122c3b36c6bd43d0b5a15b15_1b44f30c_250](https://github.com/user-attachments/assets/69909270-f444-4ca5-b1c4-a629c4232fd0)
