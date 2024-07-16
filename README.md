@@ -81,7 +81,9 @@ paru uses she/byte and i use he/him :D
 Int!!!: under 18 (im a minor), splatoon players, hermitcraft and minecraft enjoyers, (NORMAL) homestuck fans, cat people, LGBTQ+ freaks /affec, Warrior Cats kids, and other nice people!!!!
 
 Dni!!!: any racist/steriotype skins, void skins, regis (idm regis pls just dont come up to me in uniform lol), proshippers, k!nk or nsfw skins, TERFs, "lesboys"/"gaygirls", p3d0s/MAPS, z00ph1l3s, etc :((
-pls just dont be weird around me haha  ![646339c1f1c7ec90c726318c_07](https://github.com/user-attachments/assets/2e4b4aaa-b27a-4dc8-a58c-31a6c2c1323b)
+pls just dont be weird around me haha  
+
+![646339c1f1c7ec90c726318c_07](https://github.com/user-attachments/assets/2e4b4aaa-b27a-4dc8-a58c-31a6c2c1323b)
 
 ![tumblr_1df69c849a85c74bd301c59420a354b4_21c3b474_400](https://github.com/user-attachments/assets/12a3e050-e821-42e4-9731-ac5422e8c052)
 ![tumblr_1df69c849a85c74bd301c59420a354b4_21c3b474_400](https://github.com/user-attachments/assets/12a3e050-e821-42e4-9731-ac5422e8c052)
