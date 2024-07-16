@@ -14,7 +14,7 @@ Hii im charlie!! u can also call me Paru ^^
  
  currently in a commited relationship, plz dont flirt!!
 
-  beware i do say the slurs that i can reclaim- maybe dni if ur uncomfy with that :(( (sorry)
+  beware i do say the slurs that i can reclaim- plz tell me if ur uncomfy (sorry)
 
   ![tumblr_399dfc02ba448c068bb286c9742f1ed3_4d27435f_400](https://github.com/user-attachments/assets/e7638a2c-b9e3-44b2-9dfd-7a491a3b36bd)
 
