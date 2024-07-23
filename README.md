@@ -38,7 +38,7 @@ paru uses she/byte and i use he/him :D
 ![tumblr_a407b2a4b389f8ad7621681ed79df005_eb2b9bbd_1280](https://github.com/user-attachments/assets/fa114723-ec2b-4952-a899-eb8abcd95ca9)
 ![image](https://github.com/user-attachments/assets/d7a538a9-1f49-4859-9102-f665bf74651c)
 ![tumblr_3c0cec249839f9d8df59fa349a2153a6_1ab5745e_640](https://github.com/user-attachments/assets/76cd0c7a-d094-4d46-a2fa-73ff374ef23f)
-!![tumblr_aa20940a693d3270ceeb2667165dd6c1_d7adc01e_400](https://github.com/user-attachments/assets/0ec6806d-151b-4fe8-b1e4-3e078429d275)
+![tumblr_aa20940a693d3270ceeb2667165dd6c1_d7adc01e_400](https://github.com/user-attachments/assets/0ec6806d-151b-4fe8-b1e4-3e078429d275)
 ![tumblr_014595f7dfc0a856918cae186b02fd96_cf6f90be_500](https://github.com/user-attachments/assets/530c4027-cf17-43e6-940a-62827b997487)
 ![tumblr_68bb9e71ec030bfeb579002c6761aa36_9f052121_100](https://github.com/user-attachments/assets/c8c45ca7-ddc3-407c-a642-45d113a3c228)
 ![tumblr_1587444382105fb6774da80145174bb4_5f1f19b3_250](https://github.com/user-attachments/assets/3a2ace86-f7aa-4a78-8f02-7c72976303ec)
