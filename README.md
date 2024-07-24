@@ -9,29 +9,28 @@ Hii im charlie!! u can also call me Paru ^^
 ![tumblr_dc657886e922c9d29a051c9492e708b0_1f91ed6d_400](https://github.com/user-attachments/assets/a0e1c5fd-ba48-4a00-b072-39a2009466f1)
 
 
-  I'm transmasc and gay :33 plz leave me alone if u have a problem with this
+transmasc and gay - leave me alone if u have a problem with this /srs
  ![tumblr_fe8fbe8a122c3b36c6bd43d0b5a15b15_1b44f30c_250](https://github.com/user-attachments/assets/69909270-f444-4ca5-b1c4-a629c4232fd0)
  
- currently in a commited relationship, plz dont flirt!!
+In a commited relationship. Dont flirt!!
 
-  beware i do say the slurs that i can reclaim- plz tell me if ur uncomfy (sorry)
+1 year anniversary is 8/24/24 
 
+  beware i do say the slurs that i can reclaim- lmk if ur uncomfortable!!
   ![tumblr_399dfc02ba448c068bb286c9742f1ed3_4d27435f_400](https://github.com/user-attachments/assets/e7638a2c-b9e3-44b2-9dfd-7a491a3b36bd)
 
 
-  I'm a dogboy!!! 
-  I say stuff like "woof" a lot kinda just as a stim, plz lmk if it weirds u out and i'll stop <33!!
-
-  BTW this isnt like a k1nk thing. im a pet regressor n that stuff is gross. </3
+  I'm kemonomimi :3 (dogboy specifically) 
+  I say stuff like "woof" a lot kinda just as a stim, lmk if it weirds u out and i'll stop.
  
   ![tumblr_d4d628d9a2acf5c17a7cdc3ce3319839_de45afb3_250](https://github.com/user-attachments/assets/527092d0-eedd-4966-861f-2486de518910)
   
-  plz dont use pet names if we aren't close lol. if we are have at it!!! >:3 
+  DONT use pet names/nicknames if we aren't close. just call me charlie. if we are have at it, idc too much.
 
 
 Sys of around 7 alters. We have two hosts, Charlie and Paruko ![64634be786d11debe86c8c42_86](https://github.com/user-attachments/assets/d7a27be0-2cb8-41d7-99b0-02ec28ed4259)
 
-i rlly doubt you'll meet anyone besides us but it can be good to know!! :D
+i rlly doubt you'll meet anyone besides us, but it can be good to know :)
 
 paru uses she/byte and i use he/him :D
 
