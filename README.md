@@ -1,7 +1,7 @@
+![tumblr_356766bf819ec34119d3171a504b8bdf_13d3a565_540](https://github.com/user-attachments/assets/0c99c804-dc03-4289-812d-f858746c1e98)
 
-![tumblr_45ad9af666dbb2e8fae15fa8b2e043f3_d159b90b_1280](https://github.com/user-attachments/assets/a9fb907c-07a1-4b65-afb3-543eb3e4244c)
-
-# Hey gang!! Welcome to my page!! :D
+# Hey gang
+!! Welcome to my page!! :D
 
 Hii im charlie!! u can also call me Paru ^^
 
@@ -89,4 +89,6 @@ pls just dont be weird around me haha
 ![tumblr_1df69c849a85c74bd301c59420a354b4_21c3b474_400](https://github.com/user-attachments/assets/12a3e050-e821-42e4-9731-ac5422e8c052)
 
 # MY DISC USERNAME IS PARUF1SH BTW
+
+![tumblr_45ad9af666dbb2e8fae15fa8b2e043f3_d159b90b_1280](https://github.com/user-attachments/assets/a9fb907c-07a1-4b65-afb3-543eb3e4244c)
 
