@@ -1,9 +1,9 @@
-![tumblr_356766bf819ec34119d3171a504b8bdf_13d3a565_540](https://github.com/user-attachments/assets/0c99c804-dc03-4289-812d-f858746c1e98)
+![paruko](https://github.com/user-attachments/assets/595fabd5-8b90-403b-9e58-f1089b2e2686)
 
-# Hey gang
-!! Welcome to my page!! :D
+# i am a threat to national security
+!! Welcome to my page!! 
 
-Hii im charlie!! u can also call me Paru ^^
+Hii im charlie!! u can also call me Paru
 
 ![tumblr_dc657886e922c9d29a051c9492e708b0_1f91ed6d_400](https://github.com/user-attachments/assets/a0e1c5fd-ba48-4a00-b072-39a2009466f1)
 ![tumblr_dc657886e922c9d29a051c9492e708b0_1f91ed6d_400](https://github.com/user-attachments/assets/a0e1c5fd-ba48-4a00-b072-39a2009466f1)
